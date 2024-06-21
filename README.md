@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @lan-lan-lan-lan-lan, but just call me lan 
-- not the best at tetr.io
-- not the best at CS either, still learning
+- not the best at CS, still learning
+- i play tetr.io, also not that good 
 - burnt-out honor student 🔥
 
 <!---
