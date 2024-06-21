@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @lan-lan-lan-lan-lan, but just call me lan 
-- LAN_LAN_ on tetr.io, not that good though 
+- not the best at tetr.io
 - not the best at CS either, still learning
 - burnt-out honor student 🔥
 
